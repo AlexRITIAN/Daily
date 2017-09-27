@@ -5,3 +5,4 @@ Death is so terribly final,while life is full of possibilities.
 Don't wait to be lonely,to recognize the value of friend.
 Failure is fog through witch we glimpse triumph.
 whenever people agree with me,I always feel I must waring.
+Don't let the past steal your present.
