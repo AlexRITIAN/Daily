@@ -6,3 +6,4 @@ Don't wait to be lonely,to recognize the value of friend.
 Failure is fog through witch we glimpse triumph.
 whenever people agree with me,I always feel I must waring.
 Don't let the past steal your present.
+First i need your hand,then forever can begin.
