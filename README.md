@@ -7,4 +7,4 @@ Failure is fog through witch we glimpse triumph.
 whenever people agree with me,I always feel I must waring.
 Don't let the past steal your present.
 First i need your hand,then forever can begin.
-We all in the gutter,but some of us looking at the stars.
+We are all in the gutter,but some of us looking at the stars.
