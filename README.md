@@ -8,3 +8,4 @@ whenever people agree with me,I always feel I must waring.
 Don't let the past steal your present.
 First i need your hand,then forever can begin.
 We are all in the gutter,but some of us looking at the stars.
+Distance could make you forget about them,but the memories would always be there.
