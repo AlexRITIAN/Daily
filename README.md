@@ -10,3 +10,4 @@ First i need your hand,then forever can begin.
 We are all in the gutter,but some of us looking at the stars.
 Distance could make you forget about them,but the memories would always be there.
 I have to protect the one thing I can't live without
+We both look up at the same stars,yet we see such different things.
