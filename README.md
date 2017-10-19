@@ -16,3 +16,4 @@ Human life is ephemera,which make it precious.
 Don't make promises you can't keep.But those are the Best kind.
 We teach people how to remember,we never teach them how to grow.
 Happiness is to find someone who can give you warm and share your life together.
+The greatest ideal man can set before himself is self-perfection.
