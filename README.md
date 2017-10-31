@@ -22,3 +22,4 @@ If you focus on what you left behind you will never see what lies ahead.
 If you don't know where you're going,you might not get there.
 Be happy for this moment.This moment is your life.
 We excuse our sloth under the pretext of diffculty.
+Only someone who is well-prepared has the opportunity to imporvise.
