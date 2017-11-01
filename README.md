@@ -23,3 +23,4 @@ If you don't know where you're going,you might not get there.
 Be happy for this moment.This moment is your life.
 We excuse our sloth under the pretext of diffculty.
 Only someone who is well-prepared has the opportunity to imporvise.
+If you remember me,then I don't care if everyone else forgets.
