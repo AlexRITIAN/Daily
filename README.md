@@ -26,3 +26,4 @@ Only someone who is well-prepared has the opportunity to imporvise.
 If you remember me,then I don't care if everyone else forgets.
 My life is in these books,Read these and know my heart.
 We can't give up trying.The fight was worth it.
+All I ever wanted was a single thing worth fighting for.
